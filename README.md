@@ -1,1 +1,1 @@
-# KYNCOINS-web
+# KYNCOINS

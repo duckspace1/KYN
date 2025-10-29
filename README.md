@@ -1,1 +1,1 @@
-# KYNCOINS
+# KYN
